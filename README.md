@@ -60,4 +60,4 @@ Standing on the shoulders of all the giants before me.
 ## Contact
 #### sorcererizza
 * E-mail: izzaannsamax@gmail.com
-
+*izzaannsamax.com
